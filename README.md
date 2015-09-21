@@ -6,7 +6,7 @@ These consis of:
   - Key (Core) Words
   - Readings
 
-#Things To Do
+#Things To Do - Games
 
 ###Word Wall
 1. Starts with just a brisk wall, words are hidden.  
