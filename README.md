@@ -27,3 +27,7 @@ Harder version of game: for each **Not Correct** an additional word is added bac
 4. Click on 4 to answer, incorrect pairs are repeated
 5. Repeat, can be with any operator
 6. finished when all permutations are done
+
+###Memory Game
+1. Use vocabulary words in a memory game
+
