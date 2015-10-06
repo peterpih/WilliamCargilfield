@@ -1,0 +1,10 @@
+high
+night
+right
+light
+fight
+all
+her
+are
+like
+very
