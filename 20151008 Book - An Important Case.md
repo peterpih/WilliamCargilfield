@@ -14,7 +14,7 @@ Wilf looked at the case.
 "What can be in it?" he asked.
 "It looks important."
 "What is it?" asked Wilma.
-"I don;t know," said Chip, "but it looks very important."
+"I don't know," said Chip, "but it looks very important."
 "What is in the case?" asked Kipper.
 "I don't know," said Biff, "but it looks very, very, important."
 "What is in the case?" asked Dad.
