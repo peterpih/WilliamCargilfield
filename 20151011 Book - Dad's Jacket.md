@@ -15,13 +15,13 @@ a man put Dad's jacket on.
 The man bought the jacket.
 Dad looked for his jacket.
 "Oh no!" said Wilma.
-|I'm sorry. A man bought it."
+I'm sorry. A man bought it."
 Dad ran after the man.
 "Stop!" he called.
 "That's my jacket."
-"No, it's my jscket," said the man.
-"Give me ten pounds fot it."
-"oh no," said Dad.
+"No, it's my jacket," said the man.
+"Give me ten pounds for it."
+"Oh no," said Dad.
 He gave the man ten pounds.
 The man gave the jacket to Dad.
 The man gave Wilma ten pounds, "It's for Children in Need," he said.
