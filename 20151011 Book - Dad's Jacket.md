@@ -9,7 +9,7 @@ Anneena had a good idea.
 She invented a game.
 Dad looked at Aneena's game.
 "Let me have a go," he said.
-a man put Dad's jacket on.
+A man put Dad's jacket on.
 "It's a good fit," he said.
 "It's five pounds," said Wilma.
 The man bought the jacket.
