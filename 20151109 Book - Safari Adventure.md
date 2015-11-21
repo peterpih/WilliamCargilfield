@@ -3,7 +3,8 @@ Chip and Wilf were tracking Dad.
 "Put this in your hat," said Chip.
 "Dad won't see us.
 Then we can track him."
-Chip and Wilf hid in the trees.\"Keep down," said Chip,
+Chip and Wilf hid in the trees.
+"Keep down," said Chip,
 "Here comes Dad."
 Dad went past.
 He looked for the boys, but couldn't wee them.
@@ -13,7 +14,6 @@ Chip and Wilf went home.
 They looked for Biff but she was not there.
 The key began to glow.
 It took Chip and Wilf into a magic adventure.
-
 The magic took them to Africa.
 Some zebra were going to drink at the pool.
 Chip and Wilf looked around.
