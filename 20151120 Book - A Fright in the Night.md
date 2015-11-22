@@ -1,5 +1,5 @@
 Biff and Chip went to stay with Gran.
-They ewent to stay for a week.
+They went to stay for a week.
 "Bee good," called Mum.
 "Don;t worry," said Gran.
 "I will."
