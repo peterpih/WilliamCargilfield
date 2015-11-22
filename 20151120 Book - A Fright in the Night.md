@@ -33,27 +33,26 @@ Gran Lughed.
 They sat by the fire.
 Gran made some toast.
 Biff wanted to try the new jam.
-"It;s still too hot," said Gran.
+"It's still too hot," said Gran.
 Chip had a new game.
 It was called Haunted House.
 "Can we play Haunted House, before we go to bed?" he asked.
 It was time for bed.
-Gran got Chip  hot water bottle.
-"Is thid house haunted?" asked Biff.
+Gran got Chip a hot water bottle.
+"Is this house haunted?" asked Biff.
 "Don't worry," laughed Gran.
 "I don't have ghosts in my house.
 There are not such things."
-Biff and Chip couldn;t sleep.
+Biff and Chip couldn't sleep.
 Biff had an idea.
 Shw wanted to play a joke on Chip.
 She had a torch in the bed.
-
 Bff put a sheet over her head.
 She switched on the torch.
 The sheet glowed.
 "Whooooooo! I am a ghost," said Biff.
-Chip laughed
-He wasn;t grightened.
+Chip laughed.
+He wasn't frightened.
 He pulled the sheet off Biff.
 "That was a good joke," he said.
 Bff and Chip heard a noise.
@@ -64,10 +63,10 @@ It came from outside.
 Chip looked out of the window.
 "It's not a ghost!" he laughed.
 "It's an owl. Come and look."
-Bif and Chip looked outside.
+Biff and Chip looked outside.
 "Oh no!" said Chip.
 "I can see a ghost. It is a ghost this time."
-Biff and Chip ran to Gra's room.
+Biff and Chip ran to Gran's room.
 "Gran! Gran!" called Biff.
 "There's a ghost outside."
 But Gran wasn't in bed.
@@ -77,11 +76,12 @@ Biff and Chip ran downstairs.
 But Gran wasn't downstairs.
 The door opened.
 Biff and Chip were frightened.
-"Oh no!" they said.Gran came in.
+"Oh no!" they said.
+Gran came in.
 "We were firghtned," said Chip.
 "You looked like a ghost."
 Gran laughed.
 "I'm not a ghost," she said.
 "I don't have ghosts," said Gran.
-"But I do have two mittle monsters!"
+"But I do have two little monsters!"
 Gran laughed and so did Biff and Chip.
