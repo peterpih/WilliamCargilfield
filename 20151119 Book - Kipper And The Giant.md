@@ -2,35 +2,35 @@ Kipper was watching television.
 He was watching a programme called "The Angry Giant".
 He liked the programme.
 The angry giant lived in a castle near a village.
-Noody in the village liked the giant.
+Nobody in the village liked the giant.
 He was always cross.
 When the giant was cross he stamped his feet and the houses shook.
 "Oh no!" everyone said.
 "He's cross again. He's always cross."
 Kipper went to find Chip but he was out.
-He picked up the magic key and it began to glow.\"Ooh!" said Kipper.
+He picked up the magic key and it began to glow.
+"Oh!" said Kipper.
 He ran to get Biff but she was out with Chip.
 The magic began to work.
 It took Kipper inside the magic house.
-The magic took Kipper to the gate os the giant's castle.
+The magic took Kipper to the gate of the giant's castle.
 Kipper was frightened.
 He saw a signpost.
 It pointed to the village.
-He didn't want to meet the giant so he went tothe village.
+He didn't want to meet the giant so he went to the village.
 Kipper came to the village but it was tiny.
 Kipper was a giant.
 "Oh no!" said Kipper.
 "Go away," yelled the people,
 "We don't want you.
 We've got one giant.
-We don;t want another one."
+We don't want another one."
 The people threw things at Kipper
 "Go away," they yelled.
 "We don't want another giant.
 We don't want you."
 "Stop it," shouted Kipper.
-"I'm not a giant.
-I'm a boy."
+"I'm not a giant. I'm a boy."
 The people said, "Well, you look like a giant."
 Kipper began to cry.
 "I'm not a giant," he said.
@@ -41,13 +41,13 @@ Perhaps he can help us."
 Kipper helped the villagers to mend their houses.
 He put back the broken roofs.
 "Good old Kipper," everyone said.
-"The giant threw thie big stone at us," said the people.
+"The giant threw this big stone at us," said the people.
 "We don't want it here.
 Can you put it outside the village?"
 "Yes," said Kipper, "I'll try."
 He picked up the stone and took it outside the village.
-"Goold old Kipper!" everyone called.
-All the peopl liked Kipper.
+"Good old Kipper!" everyone called.
+All the people liked Kipper.
 "Thank you," they said.
 "You have helped us a lot."
 The village band played for him.
