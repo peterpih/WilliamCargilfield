@@ -3,7 +3,7 @@ It was playtime.
 "Come in," called Mrs May.
 Mrs May told the children a story.
 The story was about a village.
-The vollage was in the mountains.
+The village was in the mountains.
 Everyone liked the story.
 It was called The Village in the Snow.
 The children went to Biff's room.
@@ -29,11 +29,11 @@ They pushed the toboggan over and they ran away.
 The children ran up.
 They helped the little boy.
 Kipper picked up his hat.
-The little boy todl them about the big boys.
+The little boy told them about the big boys.
 Kipper was cross.
 Kipper put on the little boy's hat.
 He put on his coat.
-"Aome on," he called.
+"Come on," he called.
 The big boys looked at Kipper.
 Kipper looked like the little boy.
 "Come on," said the big boys.
