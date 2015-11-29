@@ -26,7 +26,7 @@ Biff wanted to go, but Mum said she couldn't.
 The paint was still wet.
 Mum took the children to a park.
 There was a hill in the park.
-It was a good place to try the new go-ket.
+It was a good place to try the new go-kart.
 Wilma went first, but everyone had a go.
 Biff went last.
 "It's brilliant!" she said.
