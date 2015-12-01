@@ -10,32 +10,32 @@ A dragonfly flew by.
 Chip found a footprint.
 It was a giant footprint.
 "Come and look," said Chip.
-"It must be  diunosaur's footprint."
-Biff took a phograph of the giant footprint.
+"It must be a dinosaur's footprint."
+Biff took a photograph of the giant footprint.
 "I can take this photograph to school," she said.
-Nadim found soem egss.
+Nadim found some eggs.
 They were big eggs.
-"they must be a dinosaur's eggs," he said.
-One of the eggs began to crack."it's going to htch out," said Biff.
-Somehting came out of the egg.
+"They must be a dinosaur's eggs," he said.
+One of the eggs began to crack.
+"It's going to hatch out," said Biff.
+Something came out of the egg.
 "It's a little dinosaur," said Nadim.
 Soemthing flew by.
 The children were frightened.
 "What is it?" asked Chip.
 "I don't know," said Biff.
 The children ran.
-"It's a flying dinosaur," said Nadim, "and it's a big one. Come n, let's hide."
+"It's a flying dinosaur," said Nadim, "and it's a big one. Come on, let's hide."
 The flying dinosaur flew down to the egg.
 It picked up the little dinsoaur in its teeth.
-"oh no!" said Biff.
-"It's going to est it."
+"Oh no!" said Biff.
+"It's going to eat it."
 She picked up a stick and ran out.
 "Go away!" she yelled.
 The dinosaur flew away but Chip was cross with Biff.
 "You were silly, " he said. "It could have got you."
 Wilf ran on and climbed a hill.
 He wanted to look for an apatosaurus.
-Wilf ran on and climbed a hill.
 "Come up here Biff," he called.
 "You can take a photograph."
 Wilf had not climbed on a hill.
@@ -45,12 +45,12 @@ Wilf was frightened.
 "Oh help!" he said.
 He jumped down and ran.
 "Let's get out of here," he called.
-"Dpn't be grightened, said Chip.
+"Don't be frightened," said Chip.
 "It's an apatosaurus.
 It's like the one in the musuem.
 It won't hurt us."
 Biff took a photograph of it.
-"What a long nech it's got and what a long tail!" she said.
+"What a long neck it's got and what a long tail!" she said.
 "I need a bigger camera."
 The apatosaurus ran into the water.
 "What an enormous splash!" said Wilf.
@@ -61,7 +61,7 @@ Another dinosaur was coming and it looked very fierce.
 Biff took a photograph.
 "Come on," yelled Chip, "Don't stop for that. This one could eat us!"
 They began to run away.
-Wilf's other shore came off in the mud.
+Wilf's other shoe came off in the mud.
 Suddenly, the key began to glow.
 "Just in time!" said Chip.
 The magic took the children to Biff's bedroom.
