@@ -25,3 +25,52 @@ The children were frightened.
 "I don't know," said Biff.
 The children ran.
 "It's a flying dinosaur," said Nadim, "and it's a big one. Come n, let's hide."
+The flying dinosaur flew down to the egg.
+It picked up the little dinsoaur in its teeth.
+"oh no!" said Biff.
+"It's going to est it."
+She picked up a stick and ran out.
+"Go away!" she yelled.
+The dinosaur flew away but Chip was cross with Biff.
+"You were silly, " he said. "It could have got you."
+Wilf ran on and climbed a hill.
+He wanted to look for an apatosaurus.
+Wilf ran on and climbed a hill.
+"Come up here Biff," he called.
+"You can take a photograph."
+Wilf had not climbed on a hill.
+He had climbed on a dinosaur and it was enormous.
+It looked round at Wilf.
+Wilf was frightened.
+"Oh help!" he said.
+He jumped down and ran.
+"Let's get out of here," he called.
+"Dpn't be grightened, said Chip.
+"It's an apatosaurus.
+It's like the one in the musuem.
+It won't hurt us."
+Biff took a photograph of it.
+"What a long nech it's got and what a long tail!" she said.
+"I need a bigger camera."
+The apatosaurus ran into the water.
+"What an enormous splash!" said Wilf.
+Nadim looked frightened.
+"Oh help!" he called.
+Another dinosaur was coming and it looked very fierce.
+"Let's get out of here," yelled Chip.
+Biff took a photograph.
+"Come on," yelled Chip, "Don't stop for that. This one could eat us!"
+They began to run away.
+Wilf's other shore came off in the mud.
+Suddenly, the key began to glow.
+"Just in time!" said Chip.
+The magic took the children to Biff's bedroom.
+"What an adenture!" said Biff.
+"I've got some photographs."
+"This is the fierce dinosaur," said Chip.
+"Did you take this photograph?"
+"Yes," said Biff.
+"Let's tell Mum and Dad."
+"I took photographs of dinosaurs," said Biff.
+"Oh yes," said Dad.
+"Well I'm sorry, I didn't put a film in the camera.
