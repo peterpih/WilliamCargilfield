@@ -5,8 +5,8 @@ He wanted to play with the frisbee.
 Mum had an idea.
 She had a new jigsaw puzzle.
 She gave it to the children.
-"You can do this jugsaw," she said.
-"It's a goos one."
+"You can do this jigsaw," she said.
+"It's a good one."
 Everyone looked at the jigsaw.
 It was a picture of soldiers and a boy.
 "The soldiers are asking the boy a question," said Mum.
@@ -43,7 +43,7 @@ A man ran towards Edmund's father.
 "Quickly, you must hide!" he said.
 "Get inside the house.
 The soldiers are coming!"
-Edmind's father ran inside.
+Edmund's father ran inside.
 "Quickly!" shouted Edmund.
 "We must help my father to hide.
 The soldiers musn't find him."
@@ -63,13 +63,13 @@ Edmund's mother pushed the bookcase back.
 The soldiers ran into the house.
 The looked for Edmund's father.
 "Tell us where he is!" they shouted.
-The children were frightened, but they didn;t say anything.
+The children were frightened, but they didn't say anything.
 The soldiers looked everywhere, but they couldn't find Edmund's father.
 One of the soldiers found a sword.
 "His sword is here," he said, "so he must be here somewhere."
 The soldiers took everyone into a room.
 Some men sat at a big table.
-The looked at the children.
+They looked at the children.
 One of them looked at Kipper.
 "Come here, little boy," he said.
 "Where's your father?" asked the man.
@@ -103,12 +103,12 @@ She wanted some money.
 The soldiers stopped playing with the frisbee.
 They shouted at the old woman.
 "Go away!" they shouted.
-"We don;t have any money."
+"We don't have any money."
 Suddenly, one of the soldiers looked at the house.
 He saw someone running away.
 "Look! Over here!" he shouted.
 "Someone's running away."
-The solderis chased the woman.
+The soldiers chased the woman.
 "It's not a woman, it's a man," they shouted.
 "It must be the man we want.
 Don't let him get away."
