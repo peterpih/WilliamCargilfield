@@ -1,0 +1,16 @@
+now
+down
+look
+too
+he
+she
+we
+me
+be
+ws
+you
+they
+all
+are
+my
+her
