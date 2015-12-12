@@ -1,0 +1,16 @@
+went
+it's
+from
+children
+just
+help
+said
+have
+like
+so
+do
+some
+come
+were
+there
+little
