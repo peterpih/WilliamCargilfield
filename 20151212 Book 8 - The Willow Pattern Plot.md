@@ -4,19 +4,19 @@ They saw Nadim.
 Nadim ran to see them.
 He had bought something at the sale.
 It was a blue and white plate.
-He showed it to Biff abd Chip.
+He showed it to Biff and Chip.
 "It's a present for my mum," said Nadim.
 "It's a willow pttern plate. My mum collects them."
 "Why is it called a willow pattern plate?" asked Chip.
-"I don;t know," said Nadim, "but I thinkthe pattern tells a story."
+"I don't know," said Nadim, "but I think the pattern tells a story."
 "I wonder what the story is," said Biff.
 Mum and Dad looked at Nadim's plate.
 "It's a present for my mum," said Nadim.
-Biff asked if Nadim could come and playt.
+Biff asked if Nadim could come and play.
 So Nadim went to play with Biff and Chip.
 The went up to Biff's bedroom.
 "What shall we play?" asked Nadim.
-"I don;t know," said Biff.
+"I don't know," said Biff.
 Suddenly, the key began to glow.
 The magic took the children into a new adventure.
 "What's happening?" called Nadim.
@@ -78,11 +78,11 @@ Then they saw Biff, Chip and Nadim.
 "We are friends."
 "We have never seen children like you before," gasped Chang.
 "How did you get into this garden?"
-"We didn;t mean to listen," said Chip.
+"We didn't mean to listen," said Chip.
 "but we heard what you were saying."
 "We know you want to run away," said Biff.
 "But how can we?" asked Kim.
-"There are guards all roudn the garden."
+"There are guards all round the garden."
 Nadim had a good idea.
 He told them what it was.
 "It's a brilliant idea!" said Chip.
@@ -93,17 +93,17 @@ He told them what it was.
 "It is our only chance."
 "First you must hide," said Nadim.
 "Then, be ready to run over the bridge," said Chip.
-"Noew we must get ready," said Nadim.
-Kim had a long sahs round her waist.
+"Now we must get ready," said Nadim.
+Kim had a long sash round her waist.
 "Give me your sash, Kim," said Biff.
 Kim gave Biff her sash.
 Biff tied Kim's sash to the bridge.
-There were lemon trees inthe garden.
+There were lemon trees in the garden.
 Nadim and Chip climbed into one.
 They picked as many lemons as they could.
 Then they waited.
 Kim and Chang hid by the bridge.
-Biff held on tothe end of the sash.
+Biff held on to the end of the sash.
 "I hope Nadim's idea works." she thought.
 Nadim called from the tree.
 "Willow Pattern Plot - begin!" he said.
