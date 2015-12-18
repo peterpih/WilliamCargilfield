@@ -45,7 +45,7 @@ He would not let her go out of the garden.
 Kim loved a boy called Chang.
 She wanted to marry him.
 But Chang was too poor.
-Kim;s father wanted her to marry a rich man, but Kim loved Chang.
+Kim's father wanted her to marry a rich man, but Kim loved Chang.
 Kim Shee heard Chang calling.
 "Kim Shee," he called.
 "Are you alone?"
@@ -55,7 +55,7 @@ Kim Shee heard Chang calling.
 "Nobody saw me."
 "Oh!" said Kim.
 "You are cold and wet."
-"It deos not matter," said Chang.
+"It does not matter," said Chang.
 But Kim Shee was afraid.
 "You must go away," she said.
 "My father must not see you here."
