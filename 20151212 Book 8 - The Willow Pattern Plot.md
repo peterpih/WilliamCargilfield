@@ -14,7 +14,7 @@ Mum and Dad looked at Nadim's plate.
 "It's a present for my mum," said Nadim.
 Biff asked if Nadim could come and play.
 So Nadim went to play with Biff and Chip.
-The went up to Biff's bedroom.
+They went up to Biff's bedroom.
 "What shall we play?" asked Nadim.
 "I don't know," said Biff.
 Suddenly, the key began to glow.
