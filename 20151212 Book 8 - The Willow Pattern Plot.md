@@ -74,7 +74,7 @@ Chang jumped to his feet.
 He held up a stick.
 "Who is there?" he called.
 Then they saw Biff, Chip and Nadim.
-"Dn;t be afraid," said Biff.
+"Don't be afraid," said Biff.
 "We are friends."
 "We have never seen children like you before," gasped Chang.
 "How did you get into this garden?"
@@ -106,7 +106,7 @@ Kim and Chang hid by the bridge.
 Biff held on to the end of the sash.
 "I hope Nadim's idea works." she thought.
 Nadim called from the tree.
-"Willow Pattern Plot - begin!" he said.
+"Willow Pattern Plot begin!" he said.
 Chip and Nadim began to shout at the guards.
 "Come and get us!" they yelled.
 "We're over here."
@@ -123,13 +123,13 @@ The guards chased after them.
 Buff got ready.
 "I hope Kim's sash is strong!" she said.
 The guards ran onto the bridge.
-Biff pulled the sahs tight.
+Biff pulled the sash tight.
 The guards tripped over it.
 They fell over in a crash.
 "You fools!" shouted Kim Shee's father.
 Chip and Nadim climbed down from the lemon tree.
 They ran across to find Biff.
-Kim Shee's fther saw them
+Kim Shee's father saw them
 "Catch those children," he yelled.
 "Well done, Biff!" said Chip.
 "Kim and Chang have got away!"
