@@ -6,7 +6,7 @@ He had bought something at the sale.
 It was a blue and white plate.
 He showed it to Biff and Chip.
 "It's a present for my mum," said Nadim.
-"It's a willow pttern plate. My mum collects them."
+"It's a willow pattern plate. My mum collects them."
 "Why is it called a willow pattern plate?" asked Chip.
 "I don't know," said Nadim, "but I think the pattern tells a story."
 "I wonder what the story is," said Biff.
