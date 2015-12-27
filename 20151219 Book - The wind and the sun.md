@@ -7,7 +7,7 @@ Shw could make the trees green and she could make the rivers laugh.
 "I'm stronger than you," said the North Wind.
 He blew a big strong wind.
 It whistled through space and blew an old woman into a fence.
-"I;m stronger than you, little Sun."
+"I'm stronger than you, little Sun."
 "Is that what you think, North Wind?" said the Sun.
 "You think you are as strong as the mighty Sun? We shall see about that."
 She looked down from the sky.
@@ -21,7 +21,7 @@ I shall be stronger that you."
 The North Wind laughed.
 "Oh, little Sun," he said.
 "What sort of competition is that?
-I chall blow the man;s coat off in a second."
+I shall blow the man's coat off in a second."
 The Sun smiled.
 "Why don't you have first try, then North Wind?
 Let me see what you can do."
@@ -31,7 +31,7 @@ Give me space to blow."
 And so the North Wind began to blow.
 He blew as he had never blown before.
 He blew and blew and blew.
-The man ont he road looked up.
+The man on the road looked up.
 What a terrible wind!
 He pulled his coat right round him.
 "I'll blow that coat offFFFFF," shouted the North Wind.
